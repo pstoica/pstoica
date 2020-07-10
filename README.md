@@ -1,4 +1,4 @@
-# HEY CAN I GET UHH YOU TO CANCEL YOUR ICE CONTRACT INSTEAD?
+# CAN I GET UHH YOU TO CANCEL YOUR ICE CONTRACT INSTEAD?
 
 <!--
 **pstoica/pstoica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
