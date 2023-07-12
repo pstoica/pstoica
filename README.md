@@ -1,4 +1,4 @@
-# Abolish ICE
+I use technology and art to confront our disconnect from nature, our senses, and each other. Exploitation and competition take from us all. We can build a better future by prioritizing people over profit and by sharing our wealth of information and resources.
 
 <!--
 **pstoica/pstoica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
