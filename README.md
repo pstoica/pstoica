@@ -2,7 +2,7 @@ I use technology and art to confront our disconnect from nature, our senses, and
 
 Be true to yourself.
 
-(patrickstoica.com)[https://patrickstoica.com]
+[patrickstoica.com](https://patrickstoica.com)
 
 <!--
 **pstoica/pstoica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
