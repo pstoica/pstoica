@@ -1,4 +1,4 @@
-I use technology and art to confront our disconnect from nature, our senses, and each other. Exploitation and competition take from us all. By prioritizing people over profit and sharing our wealth of information and resources, we can create a world that provides for us all.
+I use technology and art to confront our disconnect from nature, our senses, and each other. Exploitation and competition take from us all. By prioritizing people over profit and sharing our wealth of information and resources, we can create a world that provides for everyone.
 
 Be true to yourself.
 
