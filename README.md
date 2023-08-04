@@ -3,6 +3,7 @@ I use technology and art to confront our disconnect from nature, our senses, and
 Be true to yourself.
 
 [patrickstoica.com](https://patrickstoica.com)
+[The QED Social Washing Scandal: LendUp and Mission Lane](https://gist.github.com/pstoica/f3c1c71d30fb249110dc1a9367b5d921)
 
 <!--
 **pstoica/pstoica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
