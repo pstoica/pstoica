@@ -4,7 +4,7 @@ Be true to yourself.
 
 [patrickstoica.com](https://patrickstoica.com)
 
-[The QED Social Washing Scandal: LendUp and Mission Lane](https://gist.github.com/pstoica/f3c1c71d30fb249110dc1a9367b5d921)
+[The QED Social Washing Scandal: LendUp and Mission Lane](https://gist.github.com/pstoica/f3c1c71d30fb249110dc1a9367b5d921](https://deprogramming.substack.com/p/mission-lane-11-years-of-social-washing)
 
 <!--
 **pstoica/pstoica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
