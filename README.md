@@ -4,7 +4,10 @@ Be true to yourself.
 
 [patrickstoica.com](https://patrickstoica.com)
 
+[Deprogramming for Programmers](https://deprogramming.substack.com)
+
 [The QED Social Washing Scandal: LendUp and Mission Lane](https://deprogramming.substack.com/p/mission-lane-11-years-of-social-washing)
+
 [LendUp and FirstBoulevard.com](https://deprogramming.substack.com/p/first-boulevard)
 
 <!--
