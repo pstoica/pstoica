@@ -5,6 +5,7 @@ Be true to yourself.
 [patrickstoica.com](https://patrickstoica.com)
 
 [The QED Social Washing Scandal: LendUp and Mission Lane](https://deprogramming.substack.com/p/mission-lane-11-years-of-social-washing)
+[LendUp and FirstBoulevard.com](https://deprogramming.substack.com/p/first-boulevard)
 
 <!--
 **pstoica/pstoica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
