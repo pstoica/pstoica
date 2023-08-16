@@ -1,5 +1,7 @@
 and so i played the game called life
 
+[oh well, play the cards that i'm given](https://www.youtube.com/watch?v=I5con-FPW3g)
+
 [patark@icloud.com](patark@icloud.com)
 
 <!--
